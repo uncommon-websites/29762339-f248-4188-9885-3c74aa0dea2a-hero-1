@@ -1,0 +1,2 @@
+# 29762339-f248-4188-9885-3c74aa0dea2a-hero-1
+Hero section variant 1 for 29762339-f248-4188-9885-3c74aa0dea2a
